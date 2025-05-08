@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Zennryouuvler
 - 👀 I’m interested in "Philosophy, Art, Space, and all of this virtual reality interweb coded archive"
-- 🌱 I’m currently learning "How to Code"
-- 💞️ I’m looking to collaborate on "NOTHING"
-- 📫 How to reach me "Dont."
+- 🌱 I’m currently learning "Code 101"
+- 💞️ I’m looking to collaborate on "nothing for now"
+- 📫 How to reach me "discord or telegram"
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: None
 
